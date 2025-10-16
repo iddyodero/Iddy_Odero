@@ -4,7 +4,7 @@ My Portfolio
 
 📍 Location: Kenya
 📞 Phone: +254751063698
-📧 Email: oderoiddy22@gmail.com
+📧 Email: oderoiddy39@gmail.com
 
 🎓 Student: Kirinyaga University
 💼 Freelancer | Translator | Writer | Graphic Designer
